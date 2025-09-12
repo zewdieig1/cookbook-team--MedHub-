@@ -1,3 +1,3 @@
 ## Contributors
-Contributors: Israel, Rosa
+Contributors: Israel, Rosa, Rosario
 
